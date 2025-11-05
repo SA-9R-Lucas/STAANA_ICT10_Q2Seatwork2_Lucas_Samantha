@@ -1,0 +1,1 @@
+# STAANA_ICT10_Q2Seatwork2_Lucas_Samantha
